@@ -5,7 +5,7 @@ If you got issues about code following this credit
 Credit 
 https://www.youtube.com/watch?v=sj9_lOgysXk
 
-Member for build this app
+Members who build this app
 - Siriphan Sithisack 2CW2
 - Alounny Santivong
 
